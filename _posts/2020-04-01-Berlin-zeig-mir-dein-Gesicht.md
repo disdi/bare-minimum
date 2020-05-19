@@ -33,6 +33,8 @@ title:  "Berlin zeigt mir dein Gesicht!"
 
 ## Part 1 - Riestag Building
 
+![sample post]({{site.baseurl}}/images/c1.png)
+
 	We flew over a building with its roof made of glasses,
     Inside were politicians dressed in suits and boots.
 	a government which decided fates of refugees and masses,
@@ -52,6 +54,8 @@ title:  "Berlin zeigt mir dein Gesicht!"
 	She flew me again without any reply.
 
 ## Part 2 - Jewes Museum
+
+![sample post]({{site.baseurl}}/images/c3.png)
 
     We reached a square overseeing gargentuan gate,
     sourrounded by greenery and sourrounded by grass fences,
@@ -81,6 +85,8 @@ title:  "Berlin zeigt mir dein Gesicht!"
 	She flew me again without any reply.
 
 ## Part 3 - Berghain Club
+
+![sample post]({{site.baseurl}}/images/c4.png)
 
 	We landed in front of lines of tourists,
 	admist doors full of grafities and paints,
