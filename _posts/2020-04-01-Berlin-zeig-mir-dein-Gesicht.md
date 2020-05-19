@@ -31,9 +31,9 @@ title:  "Berlin zeigt mir dein Gesicht!"
     unsure to reveal humanity's falls or heights,
     started flying, clamped me to her side.
 
-## Part 1 - Riestag Building
+## Part 1 - Reichstag building
 
-![sample post]({{site.baseurl}}/images/c1.png)
+![sample post]({{site.baseurl}}/images/riestag.jpeg)
 
 	We flew over a building with its roof made of glasses,
     Inside were politicians dressed in suits and boots.
@@ -53,9 +53,9 @@ title:  "Berlin zeigt mir dein Gesicht!"
     I saw a smile that was not plain, nor sly
 	She flew me again without any reply.
 
-## Part 2 - Jewes Museum
+## Part 2 - The Holocaust Memorial
 
-![sample post]({{site.baseurl}}/images/c3.png)
+![sample post]({{site.baseurl}}/images/jews.jpeg)
 
     We reached a square overseeing gargentuan gate,
     sourrounded by greenery and sourrounded by grass fences,
@@ -84,9 +84,9 @@ title:  "Berlin zeigt mir dein Gesicht!"
     I saw a smile that was not plain, nor sly
 	She flew me again without any reply.
 
-## Part 3 - Berghain Club
+## Part 3 - Berghain
 
-![sample post]({{site.baseurl}}/images/c4.png)
+![sample post]({{site.baseurl}}/images/berghain.jpeg)
 
 	We landed in front of lines of tourists,
 	admist doors full of grafities and paints,
@@ -113,6 +113,8 @@ title:  "Berlin zeigt mir dein Gesicht!"
 
 ## Part 4 - Berlin Wall
 	
+![sample post]({{site.baseurl}}/images/wall.jpeg)
+
 	I landed in front of in green stetch of land 
 	what laid in front was just a stretch of Wall,
 	within those bricks under mortar and cement, felt my hand
