@@ -3,55 +3,122 @@ layout: default
 title:  "Berlin zeigt mir dein Gesicht!"
 ---
 
+    They say it since even Adam and Moses,
+    billions of us who now live and breathe,
+    that Man proposes and God disposes,
+    Uselss are your cravings, useless your greed.
 
-	past year berlin visited inside out
-	visited all the land but Berlin is different
+    Things unsimilar seem to happen to me of late,
+    I landed in Berlin with a turn of Fate.
+
+    A city which has seen world both new and old,
+    which knows how low humanity can fall, 
+    a city full of strangest taste and culture,
+    I found Berlin wierdest of all.
+
+    Like a student I studied Berlin,
+    like a disciple I believed in its glories,
+    like a devout I followed its voice,
+    like a child I revelled in its stories.
+
+    Having lived in its panaroma of culture and race,
+    I asked, "Berlin is this your true face?"
+
+    Berlin ist das dein wahres Gesicht ?
+
+    The sprit of Berlin unsure of wrongs or rights,
+    unsure of what secrets to show or hide,
+    unsure to reveal humanity's falls or heights,
+    started flying, clamped me to her side.
+
+    Part 1 - Riestag Building
+
+	We flew over a building with its roof made of glasses,
+    Inside were politicians dressed in suits and boots.
+	a government which decided fates of refugees and masses,
+	a government which knows your lineage and roots.
+	
+    I saw, I heard and tried to comprehend,
+    I tore down thier discussions to its very base,
+    then I turned to the spirit, to this friend, 
+    I asked, "Berlin is this your true face?"
+
+    Berlin ist das dein wahres Gesicht ?
+    The sprit of Berlin unsure of wrongs or rights,
+    unsure of what secrets to show or hide,
+    unsure to reveal humanity's falls or heights,
+    clutched my hands, clamped me to her side.
+    I saw a smile that was not plain, nor sly
+	She flew me again without any reply.
+
+    Part 2 - Jewes Museum
+
+    We reached a square overseeing gargentuan gate,
+    sourrounded by greenery and sourrounded by grass fences,
+	I surveryed and loitered around, not sure what to expect,
+	then stumbled across low-high cemented grey benches.
+
+	As I walked through those narrow lanes,
+    admist memories of humanity's greatest crimes,
+    judging history of its losses and gains
+    imagining life in those horrendous times.
+
+    I still seem to hear screams and voices,
+    those graves seems to hide a secret,
+    showing man at its lowest admist noises,
+	they spoke how ends the path of hatred.
+
+    I could not control my feelings, my hearts pace.
+	Again I turned to the spirit, to this friend, 
+    I shouted with anger, "Berlin is this your true face?"
+
+	Berlin ist das dein wahres Gesicht ?
+    The sprit of Berlin unsure of wrongs or rights,
+    unsure of what secrets to show or hide,
+    unsure to reveal humanity's falls or heights,
+    clutched my hands, clamped me to her side.
+    I saw a smile that was not plain, nor sly
+	She flew me again without any reply.
+
+    Part 3 - Berghain Club
+
+	We landed in front of lines of tourists,
+	admist doors full of grafities and paints,
+    I could hear beats that reached not just ears,
+    music so powerful that one just faints.
+
+	Its dark corners blinding the very soul,
+    bodies dancing not to enjoy but to heel,
+	My eyes witnessed Beauty and frenzy interleaned together, 
+	My mind couldn't comprehend, my heart couldn't feel.
+
+	Within smell of smoke and hash, my eyes could gaze,
+	Again I turned to the spirit, to this friend, 
+    I shouted with frenzy, "Berlin is this your true face?"
+
+	Berlin ist das dein wahres Gesicht ?
+    The sprit of Berlin unsure of wrongs or rights,
+    unsure of what secrets to show or hide,
+    unsure to reveal humanity's falls or heights,
+    clutched my hands, clamped me to her side.
+    I saw a smile that was not plain, nor sly
+	She flew me again without any reply.
 
 
-	Reistag
-	very famous  glass building in which very strong government
-	people sitting inside decideds fates of Refugee and thier generations to come
+    Part 4 - Berlin Wall
 	
-	Berlin is this your face - Berlin ist das dein wahres Gesicht ?
-	THere was no reply
+	I landed in front of in green stetch of land 
+	what laid in front was just a stretch of Wall,
+	within those bricks under mortar and cement, felt my hand
+    cries which through corridors of history call.
 	
-	jews museum
-	Close by some low rugged grey benches
-	peple roaming in between the walls
-	walking admist the gravity of the greatest horrors by mankind
-	it seems to hide a secret .. ti hid no blood , no bones , no ashes , no gas chambers
-	What man can do when he is at his lowest
+    I saw a city fighting from its past, 
+    trying from its guilts to break free,
+    its seemed to tell me its story
+    and quite flows the Spree. 
 	
-	Berlin is this your face - Berlin ist das dein wahres Gesicht ?
-	THere was no reply
-	
-	
-	CLub- Berghain
-	They told me this is Belrin no more
-	Real Berlin in in its party culture
-
-	its blinding light , blids the very soul
-	market of beauty and lust
-	things eyes could see but mind could not perceive
-	within smell of smoke and hash, I wispered ?
-	Berlin is this your face - Berlin ist das dein wahres Gesicht ?
-	THere was no reply
-	
-	
-	Berlin Wall
-	Searching for Berlin's soul , I finally stumbled at its Wall
-	touching it, it took me back to its creation - 13. August 1961
-	I could see family torn apart on either side--- searching for thier loived ones 
-	everyoone seem to ask what politics can cost families to be divided but less they knew ..it was formation of new worlds
-	some wondered if this was the price for horrors commited in the past
-	but thier hopes and cries seemed to get soaked within those bricks under mortar and cement
-	
-	then I seem to travel thtough time to Novemeber 1991
-	people tearing though the same wall to break free those cries and longings 
-	each brick that broke seem to wash a tear from the past.
-	
-	I turned around and asked ... how could a single city ... see so much horror, cruelty , longing and then freedom and ecstasy.
-	
-	Berlin seemed to smile back at me.
-	Perhaps I had seem its true face - sein wahres Gesicht
+	Again I turned to the spirit, to this friend, 
+    She smiled and said our journey has come to its end.
+    This is the dream I will remember for rest of days,
+	When it was revealed to me, Berlin's true face.
 	
