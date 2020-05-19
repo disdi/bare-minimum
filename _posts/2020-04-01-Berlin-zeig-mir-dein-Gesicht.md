@@ -33,7 +33,7 @@ title:  "Berlin zeigt mir dein Gesicht!"
 
 ## Part 1 - Reichstag building
 
-![sample post]({{site.baseurl}}/images/riestag.jpeg)
+![sample post]({{site.baseurl}}/images/reistag.jpg)
 
 	We flew over a building with its roof made of glasses,
     Inside were politicians dressed in suits and boots.
@@ -55,7 +55,7 @@ title:  "Berlin zeigt mir dein Gesicht!"
 
 ## Part 2 - The Holocaust Memorial
 
-![sample post]({{site.baseurl}}/images/jews.jpeg)
+![sample post]({{site.baseurl}}/images/jews.jpg)
 
     We reached a square overseeing gargentuan gate,
     sourrounded by greenery and sourrounded by grass fences,
