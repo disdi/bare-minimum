@@ -1,6 +1,6 @@
 ---
 layout: default
-title:  "I will suffer!"
+title:  "I know I would suffer!"
 ---
 
     If I had loved you less or played you slyly,
