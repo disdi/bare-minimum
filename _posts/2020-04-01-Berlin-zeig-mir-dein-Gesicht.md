@@ -123,7 +123,7 @@ title:  "Berlin zeigt mir dein Gesicht!"
     I saw a city fighting from its past, 
     trying from its guilts to break free,
     its seemed to tell me its story,
-    and I quitely kept gazing like the river Spree.
+    and I kept gazing like the river Spree.
 	
 	Again I turned to the spirit, to this friend, 
     She smiled and said our journey has come to its end.
