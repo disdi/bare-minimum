@@ -127,6 +127,6 @@ title:  "Berlin zeigt mir dein Gesicht!"
 	
 	Again I turned to the spirit, to this friend, 
     She smiled and said our journey has come to its end.
-    This is the dream I will remember for rest of days,
+    This is the dream I will remember for rest of my days,
 	When it was revealed to me, Berlin's true face.
 	
