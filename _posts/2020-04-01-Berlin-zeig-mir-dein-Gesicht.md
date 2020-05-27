@@ -6,27 +6,27 @@ title:  "Berlin zeigt mir dein Gesicht!"
     They say it since even Adam and Moses,
     billions of us who now live and breathe,
     that Man proposes and God disposes,
-    Uselss are your cravings, useless your greed.
+    Useless are your cravings, useless your greed.
 
-    Things unsimilar seem to happen to me of late,
+    Things unfamiliar seem to happen to me of late,
     I landed in Berlin with a turn of Fate.
 
     A city which has seen world both new and old,
     which knows how low humanity can fall, 
     a city full of strangest taste and culture,
-    I found Berlin wierdest of all.
+    I found Berlin weirdest of all.
 
     Like a student I studied Berlin,
     like a disciple I believed in its glories,
     like a devout I followed its voice,
-    like a child I revelled in its stories.
+    like a child I reveled in its stories.
 
-    Having lived in its panaroma of culture and race,
+    Having lived in its panorama of culture and race,
     I asked, "Berlin is this your true face?"
 
     Berlin ist das dein wahres Gesicht ?
 
-    The sprit of Berlin unsure of wrongs or rights,
+    The spirit of Berlin unsure of wrongs or rights,
     unsure of what secrets to show or hide,
     unsure to reveal humanity's falls or heights,
     started flying, clamped me to her side.
@@ -58,9 +58,9 @@ title:  "Berlin zeigt mir dein Gesicht!"
 ![sample post]({{site.baseurl}}/images/jews.jpg)
 
     We reached a square overseeing gargentuan gate,
-    sourrounded by greenery and sourrounded by grass fences,
-	I surveryed and loitered around, not sure what to expect,
-	then stumbled across low-high cemented grey benches.
+    surrounded by green grass and fences,
+	I surveryed and loitered around,
+	then stumbled on low-high cemented grey benches.
 
 	As I walked through those narrow lanes,
     admist memories of humanity's greatest crimes,
@@ -122,8 +122,8 @@ title:  "Berlin zeigt mir dein Gesicht!"
 	
     I saw a city fighting from its past, 
     trying from its guilts to break free,
-    its seemed to tell me its story
-    and quite flows the Spree. 
+    its seemed to tell me its story,
+    and I quitely kept gazing like the river Spree.
 	
 	Again I turned to the spirit, to this friend, 
     She smiled and said our journey has come to its end.
